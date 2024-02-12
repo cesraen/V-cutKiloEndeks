@@ -1,0 +1,1 @@
+vücut kitle endeks hesaplama
